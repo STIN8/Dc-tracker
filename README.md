@@ -39,7 +39,7 @@ add
 
 
 
-
+The person you want to track must have a phone!!!
 
 ![image](https://github.com/STIN8/Dc-tracker/assets/110323360/d5b5b96b-9505-43bd-949e-8dd2a1bca481)
 
