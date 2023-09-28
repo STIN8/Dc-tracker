@@ -48,3 +48,10 @@ The person you want to track must have a phone!!!
 
 ![image](https://github.com/STIN8/Dc-tracker/assets/110323360/1002204d-c43e-46d1-833d-7ee5c841b8fa)
 
+
+
+
+Discord: 2wi
+
+
+link my server FiveM: https://discord.gg/X89zH8UERy
