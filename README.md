@@ -51,7 +51,7 @@ The person you want to track must have a phone!!!
 
 
 
-Discord: 2wi
-
+Discord: 2wi 
+discord url: https://discord.com/users/294063687667286016
 
 link my server FiveM: https://discord.gg/X89zH8UERy
